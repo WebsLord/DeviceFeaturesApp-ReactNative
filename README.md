@@ -1,1 +1,1 @@
-Efe Yaşar 210408030
+Efe Yaşar
